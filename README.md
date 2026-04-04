@@ -1,2 +1,0 @@
-# azadarmuslim
-first repositiory
